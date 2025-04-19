@@ -4,5 +4,4 @@ Check out my Spacehey for art blog posts
 
 I don't care who interacts with me lmao
 
-
-Meet my gng... @turntechMethHead @jarleypilled @ac1dwater @MisterAbyss @turntechmonoxide @ghostofagirl
+I legit live in Texas and I'm Mexican uhh yeah.
